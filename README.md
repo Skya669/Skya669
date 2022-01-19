@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Skya669
+- 👀 I’m interested in NETWORKING !
+- 🌱 I’m currently learning Cisco ! 
